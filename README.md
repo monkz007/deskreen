@@ -14,13 +14,6 @@
 
 ---
 
-
-## [♥️ CLICK HERE TO GO TO A TWEET TO DONATE TO UKRAINE! ♥️](https://twitter.com/Ukraine/status/1497294840110977024)
-
-# GLORY TO 🇺🇦 UKRAINE 🇺🇦, GLORY TO UKRAINIAN HEROES! 🇺🇦🇺🇦🇺🇦
-
----
-
 ### ▶️ [Deskreen Youtube channel](https://www.youtube.com/channel/UCyiTK98gjDKGNNjUk9ynzxQ) (video tutorials, demos, use cases for Deskreen day to day usage)
 
 ## Deskreen turns any device with a web browser into a secondary screen for your computer
